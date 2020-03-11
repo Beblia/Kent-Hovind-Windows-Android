@@ -12,6 +12,11 @@ Windows 10 Direct Download Link:
 <br/>
 http://51.91.170.33/W10/Beblia/KentHovind/
 <br/>
+<br/>
+Android Download Link:
+<br/>
+http://51.91.170.33/Android/Beblia/kentHovindNew.kentHovindNew.apk
+<br/>
 ----------------------------------
 <br/>
 <br/>

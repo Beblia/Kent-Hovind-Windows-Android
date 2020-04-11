@@ -10,22 +10,22 @@ https://www.beblia.com
 <br/>
 Windows 10 Direct Download Link:
 <br/>
-http://51.91.170.33/W10/Beblia/KentHovind/
+https://servervideos.hopto.org/W10/Beblia/KentHovind/
 <br/>
 <br/>
 Android Download Link:
 <br/>
-http://51.91.170.33/Android/Beblia/kentHovindNew.kentHovindNew.apk
+https://servervideos.hopto.org/Android/Beblia/kentHovindNew.kentHovindNew.apk
 <br/>
 ----------------------------------
 <br/>
 <br/>
-<img src="http://51.91.170.33/W10/Beblia/KentHovind/1.png" />
+<img src="https://servervideos.hopto.org/W10/Beblia/KentHovind/1.png" />
 ----------------------------------
 <br/>
 <br/>
-<img src="http://51.91.170.33/W10/Beblia/KentHovind/2.png" />
+<img src="https://servervideos.hopto.org/W10/Beblia/KentHovind/2.png" />
 ----------------------------------
 <br/>
 <br/>
-<img src="http://51.91.170.33/W10/Beblia/KentHovind/3.png" />
+<img src="https://servervideos.hopto.org/W10/Beblia/KentHovind/3.png" />
